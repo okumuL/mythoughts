@@ -1,0 +1,2 @@
+# mythoughts
+about me
